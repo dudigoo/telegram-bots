@@ -1,2 +1,1 @@
-i m
-the2
+trials to learn the subject
